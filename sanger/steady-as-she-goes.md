@@ -1,5 +1,5 @@
 # Steady as she goes (av The Raconteurs)
-Denne myke rockesangen handle om presset til å leve et monotomt A4 liv, på bekostning av seg selv. Veldig naturlig å tolke denne sangen i LHBT retning. 
+Sangen er å finne på ulike plattformer [her](https://www.tapelink.io/share/QoEPW2Pg). Denne myke rockesangen handle om presset til å leve et monotomt A4 liv, på bekostning av seg selv. Veldig naturlig å tolke denne sangen i LHBT retning. 
 
 E fann opprinnelig denne sangen via Philosophy Tube sin video [Queer✨](https://youtu.be/5Hi6j2UXEZM) i musikkalnummeret [her](https://youtu.be/5Hi6j2UXEZM?&t=454). Hele videoen anbefales forresten sterkt, med undertekster. 
 
@@ -19,7 +19,7 @@ Andre verset fortsetter med top-tier trippeltbetydning i ordet kink.
 Fra [Cambridge dictionary](https://dictionary.cambridge.org/dictionary/english/kink) både:
 - "Something that is wrong": Foreldran dine kommentere på det dine single venner gjør, og at det e galt. Folk e idag ofte meir og lengere singel enn før, samtidig som folk er friere enn før til å være det, og til å leve "alternative" livsstiler forøvrig. Dette går hånd i hånd, og foreldran kommentere nok på begge deler. 
     - En kunne også tolket det som vennan dine har demonstrert at det e nå gæli med A4 livet, i sine "alternative" livsstiler. 
-- "An **unwanted** twist or bend in a wire, rope, pipe, etc. that is usually **straight**": Ganske direkte. 
+- "An **unwanted** twist or bend in a wire, rope, pipe, etc. that is **usually straight**": Ganske direkte. 
 
 Også er det selvfølgelig den seksuelle betydningen. Det e verdt å ikke skyve under en stol at seksualitet er noe mange i LHBT miljø enten sliter eller har slitt med, i stor grad fordi så mye av kulturen vår er bygd på at hetrofile forhold er standarden. En kan altså tolke denne linjen som at foreldrene sier vennene dine er alt for kinky, men det er jo fordi bare det å ligge med samme kjønn i seg selv er kinky i deres konservative syn. 
 
@@ -39,13 +39,13 @@ En kan alternativt tolke "a friend that knows you well" som det å ha et fornuft
     Then you'll get along
     Then you'll get along
 
-Når du har gjort det samfundet forvente av deg. Og alle dine lidenskaper har grodd fast i arbeidet med å holde oppe fasaden. Da bli alt bra...
+Når du har gjort det samfundet forvente av deg. Og alle dine lidenskaper har grodd fast i arbeidet med å holde oppe fasaden. Da bli alt bra, hold stødig kurs!
 
     Settle for a world, neither up or down
     Sell it to the crowd that has gathered 'round
     Settle for a girl, neither up or down
     Sell it to the crowd that has gathered 'round
 
-Dette er altså den dystre verden sangen ender opp med. Du skal ikke leve livet ditt til det fulle. Du skal bare nøye deg med å opprettholde fasaden din, slik at andre igjen kan se på deg og tenke du har et "perfekt liv", og foreldran dine må ha vært flink i din oppdragelse. Slik kan du bidra til å opprettholde samfundspresset du ironsik nok lever under selv. 
+Dette er altså den dystre verden sangen ender opp med. Du skal ikke leve livet ditt til det fulle. Du skal bare nøye deg med å opprettholde den monotone (neither up or down) fasaden din, slik at andre igjen kan se på deg og tenke du har et "perfekt liv", og "foreldran dine må ha vært flinke i din oppdragelse". Slik kan du bidra til å opprettholde samfundspresset du ironsik nok lever under selv. 
 
 Som sagt av [XKCD 137](https://xkcd.com/137/): **FUCK. THAT. SHIT.**
